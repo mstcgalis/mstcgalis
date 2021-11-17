@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @mstcgalis or Daniel Gális
+- 🌱 I’m currently learning design and development of web apps
+- 👥 Part of AGDX
+- 📫 contact@danielgalis.com
