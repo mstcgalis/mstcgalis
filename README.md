@@ -10,4 +10,4 @@
 
 - https://www.are.na/agdx-fw21-ss22
 
-📫 Lets talk: contact@danielgalis.com
+📫 Let's talk: contact@danielgalis.com
