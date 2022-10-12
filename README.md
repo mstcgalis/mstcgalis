@@ -1,4 +1,4 @@
-👋 @mstcgalis, @danielmstc or [Daniel Gális](https://danielgalis.com/)
+👋 @mstcgalis, @danielmstc, or [Daniel Gális](https://danielgalis.com/)
 
 👥 member of [AGDX](https://www.are.na/agdx-sdmoaxv8apq)
 
