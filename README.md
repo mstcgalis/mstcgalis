@@ -2,6 +2,6 @@
 
 🔨 trying to make tools that emancipate
 
-🧢 UX and UI design, sometimes coding
+🧢 interaction design, sometimes coding
 
 ♻️ building good habits and making music
